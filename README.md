@@ -14,4 +14,5 @@ Reference: Corrigan, P. W., & Green, M. F. (1993). The Situational Feature Recog
 schema comprehension for schizophrenia. International Journal of Methods in Psychiatric
 Research, 3(1), 29–35.
 
-More information: checking my website for the completed report :)
+More information: checking my website for the completed report :) https://sites.google.com/view/jiayu-he-2016/home<img width="468" height="35" alt="image" src="https://github.com/user-attachments/assets/3e8fbc61-69a1-4c60-89d9-bec5ab9c788e" />
+
